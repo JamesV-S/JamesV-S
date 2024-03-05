@@ -5,4 +5,4 @@
 - 📫 How to reach me: Social media links or my website!
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Before I came across 3D animation rigging and fell in love,
-  coding waas a mystery to me, now it's a part of my life and I never look back
+  coding was a mystery to me, now it's a part of my life and I never look back
