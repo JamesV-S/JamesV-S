@@ -1,5 +1,5 @@
 
-Hi, I’m @JamesV-S.
+Hi, I’m James Vilela-Slater.
 
 I’m interested in developing creative tools.
 
